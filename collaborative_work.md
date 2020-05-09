@@ -30,7 +30,7 @@
 ### Example of opportunities
 
 
-## Web 3.0 by Participant 4
+## Web 3.0 by Danny Torres
 
 ### Main features
 
